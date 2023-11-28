@@ -1,0 +1,6 @@
+![Alt text](Réalisez-une-étude-de-santé-publique-avec-R-ou-Python-2.png/b26a60317572434a98f3eaf26b6b0afeq7aV17YnvZJucSQo-0.png) 
+![Alt text](Réalisez-une-étude-de-santé-publique-avec-R-ou-Python-2.png/b26a60317572434a98f3eaf26b6b0afeq7aV17YnvZJucSQo-1.png) 
+![Alt text](Réalisez-une-étude-de-santé-publique-avec-R-ou-Python-2.png/b26a60317572434a98f3eaf26b6b0afeq7aV17YnvZJucSQo-2.png) 
+![Alt text](Réalisez-une-étude-de-santé-publique-avec-R-ou-Python-2.png/b26a60317572434a98f3eaf26b6b0afeq7aV17YnvZJucSQo-3.png)
+![Alt text](Réalisez-une-étude-de-santé-publique-avec-R-ou-Python-2.png/b26a60317572434a98f3eaf26b6b0afeq7aV17YnvZJucSQo-4.png)
+![Alt text](Réalisez-une-étude-de-santé-publique-avec-R-ou-Python-2.png/b26a60317572434a98f3eaf26b6b0afeq7aV17YnvZJucSQo-5.png)
